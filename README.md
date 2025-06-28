@@ -1,2 +1,2 @@
 # Stone-paper-scrissor
-sudip roy
+sudip roy =HE IS A BETTER PERSON
